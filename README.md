@@ -1,4 +1,5 @@
-<img src="https://komarev.com/ghpvc/?username=deepaffection&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693"> <br>
+<img width="528" height="34" alt="Screenshot 2026-10-12 212426" src="https://github.com/user-attachments/assets/c3ee094e-90ce-43bd-b8f5-004efc95e3f1" />
+WTF
 
 
 
