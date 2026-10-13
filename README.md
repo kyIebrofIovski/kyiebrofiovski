@@ -1,3 +1,4 @@
+UNIQUE TIME LIMITED OFFER PLEASEE GIFT ME KYLE SKINS ILL MAKE UA  SKIN BACK <br>
 <img width="528" height="34" alt="Screenshot 2026-10-12 212426" src="https://github.com/user-attachments/assets/c3ee094e-90ce-43bd-b8f5-004efc95e3f1" />
 WTF
 
