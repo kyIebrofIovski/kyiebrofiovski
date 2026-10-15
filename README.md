@@ -18,4 +18,9 @@ couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
 ⠀⠀ 
 shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
 <br> 
-https://files.catbox.moe/zy4lse.jpg
+![](https://files.catbox.moe/zy4lse.jpg) <br> Sorry, I ain't got no money
+I'm not trying to be funny
+But I left it all at home today
+You can call me what you wanna
+I ain't giving you a dollar
+This time I ain't gonna run away
