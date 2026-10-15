@@ -14,7 +14,7 @@ WTF
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693"> <br>
 who already stole/colourpicked my kyle entirely less than 48 hours after its been fully complete WTF 💔 <br>
 couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
-<br> OH  MY GOD ANOTHER COPY OF MY KYLE OH MY GOD❤️❤️😭😭 UR SO CUTE
+<br> OH  MY GOD ANOTHER COPY OF MY KYLE OH MY GOD❤️❤️😭😭 <br> 
 ![](https://files.catbox.moe/enhoj6.jpg) <br> Sorry, I ain't got no money<br>
 I'm not trying to be funny<br>
 But I left it all at home today<br>
