@@ -14,9 +14,6 @@ WTF
 <img src="https://komarev.com/ghpvc/?username=peruere&color=5C5C5C&style=flat-square&label=⠀POPULATION⠀&base=13693"> <br>
 who already stole/colourpicked my kyle entirely less than 48 hours after its been fully complete WTF 💔 <br>
 couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
-
-⠀⠀ 
-shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
 <br> 
 ![](https://files.catbox.moe/enhoj6.jpg) <br> Sorry, I ain't got no money<br>
 I'm not trying to be funny<br>
@@ -24,3 +21,6 @@ But I left it all at home today<br>
 You can call me what you wanna<br>
 I ain't giving you a dollar<br>
 This time I ain't gonna run away<br>
+
+⠀⠀ 
+shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
