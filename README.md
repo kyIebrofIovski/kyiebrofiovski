@@ -15,12 +15,7 @@ WTF
 who already stole/colourpicked my kyle entirely less than 48 hours after its been fully complete WTF 💔 <br>
 couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
 <br> OH  MY GOD ANOTHER COPY OF MY KYLE OH MY GOD❤️❤️😭😭 <br> 
-![](https://files.catbox.moe/enhoj6.jpg) <br> Sorry, I ain't got no money<br>
-I'm not trying to be funny<br>
-But I left it all at home today<br>
-You can call me what you wanna<br>
-I ain't giving you a dollar<br>
-This time I ain't gonna run away<br>
+![](https://files.catbox.moe/enhoj6.jpg) <br> Total amount this skin got copied : 5
 
 ⠀⠀ 
 shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
