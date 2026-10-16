@@ -20,4 +20,3 @@ couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
 
 ⠀⠀ 
 shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
-<img width="481" height="733" alt="Screenshot 2026-10-16 125713" src="https://github.com/user-attachments/assets/46d050f8-f7b8-441e-b1ba-cd76c778b75a" />
