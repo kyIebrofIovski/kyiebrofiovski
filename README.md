@@ -1,3 +1,4 @@
+
 <br> Kyle is my son  <br> UNIQUE TIME LIMITED OFFER PLEASEE GIFT ME KYLE SKINS ILL MAKE UA  SKIN BACK <br>UNIQUE TIME LIMITED OFFER PLEASEE GIFT ME KYLE SKINS ILL MAKE UA  SKIN BACK <br> UC AN EVEN BE MY GREATEST ENEMY PLEASSSSSSEEEEEEE I DONT CARE WHO U ARE <br>
 <img width="528" height="34" alt="Screenshot 2026-10-12 212426" src="https://github.com/user-attachments/assets/c3ee094e-90ce-43bd-b8f5-004efc95e3f1" />
 WTF
@@ -19,3 +20,4 @@ couldve asked id give u the hexcodes willingly LOl cuddle me sometime tho
 
 ⠀⠀ 
 shig awards is when i cuddle ur pony and take a screenshot and post u here https://rentry.co/shigjournal
+<img width="481" height="733" alt="Screenshot 2026-10-16 125713" src="https://github.com/user-attachments/assets/46d050f8-f7b8-441e-b1ba-cd76c778b75a" />
