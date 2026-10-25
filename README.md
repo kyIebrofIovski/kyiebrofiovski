@@ -1,3 +1,6 @@
+<img width="286" height="270" alt="ezgif-4c3f54107cba91ea" src="https://github.com/user-attachments/assets/c7a87737-d9dd-432a-a41b-1c182f85c185" />
+
+
 <img width="250" height="350" alt="New Project 155  2FDFB29" src="https://github.com/user-attachments/assets/20d3241d-4330-4d84-9831-4263a36d4f52" />
 
 random animation of my oc i made a while while back Who fws that. by while back i mean like oh lord.. over a year ago
